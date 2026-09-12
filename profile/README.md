@@ -1,0 +1,1 @@
+Sat celeriter fieri quidquid fiat satis bene
